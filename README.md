@@ -10,4 +10,4 @@
 
 这些链接为您提供了最新的麻豆影视、麻豆传媒官网内容，包括各种热门电影与电视剧，适合不同观众群体。不论是国内外影视作品，还是特别的中文字幕资源，都能通过这些链接轻松访问。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/thuoc20250709/thuoc2 ）</span>
